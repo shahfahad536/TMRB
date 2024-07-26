@@ -1,3 +1,5 @@
+TikTok account report link 
+https://www.tiktok.com/@sanaullah9149?_t=8oLFefAi89o&_r=1
 Made by: Lorenzik
 
 # TikTok Mass Report Bot
